@@ -1,9 +1,11 @@
 ## Seven solid reasons why I think you should join a community?
 
+Why Join a community?
 
 I hear this question most of the time.
 
 But really, why join a community?
+
  Why would I recommend this to anyone…
 
 Let's dive in to find out.
@@ -14,6 +16,7 @@ As a Front end developer, I've seen how belonging to a community of people with 
 ![two-friends-talking-park-drinking-coffee-casual-142926028.jpg](https://cdn.hashnode.com/res/hashnode/image/upload/v1655314047193/zUyRbpro_.jpg align="left")
 
 A few years ago, I was still trying to find my footing as regards what to do as an amateur in the dev world, I was ALONE, really alone.
+
 I felt I was placed in the middle of nowhere to go and with no direction whatsoever. But what helped in my Journey was discovering those people who were good in their stack and have gained the mastery, and also gained the right perspective as regards what they wanted to do I introduced myself to them and I expressed my dilemma to them.
 
 So my conversation with them which was virtual at first, and then physical helped me to understand what to do and it gave me clear direction as to the path I want to tread.
