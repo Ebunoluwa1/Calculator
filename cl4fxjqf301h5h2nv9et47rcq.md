@@ -32,7 +32,10 @@ I believe this defines Community. It's a group of like-minded people to help, im
  
 **Direction and Clarity**
   
-From my introduction joining a community gives you an understanding of what you are to do and How to do it. For instance, if you are new to the tech world someone is willing to take you through what you need to know and understand, and through this valuable knowledge you have received, you can navigate yourself and make the right decisions because you now have direction and are clarified from confusion.
+From my introduction joining a community gives you an understanding of what you are to do and How to do it.
+
+ For instance, if you are new to the tech world someone is willing to take you through what you need to know and understand, and through this valuable knowledge you have received, you can navigate yourself and make the right decisions because you now have direction and are clarified from confusion.
+
 You must take note there is lots of information online but not everything is true and in the right order of path. I'm not neglecting the fact there is true information online but hearing from someone who has gone ahead of you helps a whole lot in guiding you.
 
 
@@ -73,9 +76,12 @@ This helps every individual and brings about a Creative side in them, and it als
 
 **In conclusion**, I'd summarize the Benefits of joining a community as a **PLACE FOR IMPACT**, because in the real sense that is the aim of a community.
 
-Thank you for making it this far! And I hope it was a helpful read and I hope it has convinced you to see Community in a better light and you have been encouraged to look out for one to Join.
+You made it this far😊😍!  I hope it was a helpful read and it has convinced you to see Community in a better light and you have been encouraged to look out for one to Join.
 
+ If you found this article helpful, please like and share it 😊. What benefits have you enjoyed by being a member of a community? Let me know in the comment session.
+
+I'd love to hear from you...🤗🤗
+
+Feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/ebunoluwa-oni-6929731a9), and [Twitter](https://twitter.com/OniEbunoluwa3)
  
-Cheers to Victories and success stories!!!
-
-Remember you can find me on [LinkedIn](https://www.linkedin.com/in/ebunoluwa-oni-6929731a9), and [Twitter](https://twitter.com/OniEbunoluwa3).
+Cheers to Victories and Success stories🥂🥂!!!
